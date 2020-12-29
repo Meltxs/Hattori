@@ -1,2 +1,0 @@
-# Hattori
-ok
